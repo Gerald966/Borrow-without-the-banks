@@ -1,0 +1,2 @@
+# Borrow-without-the-banks
+Hello. You have problems with your bank for borrowing money. you are serious and you are in need of a loan, or financing a project or a business. No more worries; We are individuals who offer short and long term loans ranging from $ 5,000 to $ 15,000,000 with an interest rate of 3% and repayable from 1 to 40 years. Contact us directly Contact: gerald.detienda@hotmail.com Contact: gerald.detienda@hotmail.com
